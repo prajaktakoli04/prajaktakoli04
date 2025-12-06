@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **prajaktakoli0123@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1U9bLCYYmDy4jB2IblZnZWhGJNVGVD9-C/view?usp=sharing](https://drive.google.com/file/d/1U9bLCYYmDy4jB2IblZnZWhGJNVGVD9-C/view?usp=sharing)
+ 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
